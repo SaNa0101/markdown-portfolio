@@ -1,0 +1,1 @@
+![Image of Salah](https://cdn.vox-cdn.com/thumbor/yR5h6vn35FcTiWEcbXOzk2svDIg=/0x0:3000x2184/1200x800/filters:focal(1260x852:1740x1332)/cdn.vox-cdn.com/uploads/chorus_image/image/59989893/GettyImages_944396220.0.jpg)
